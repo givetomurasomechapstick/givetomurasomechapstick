@@ -1,4 +1,4 @@
-## Hiya gang!! I'm your local idiot Moon!!
+## 𝓗𝓲𝔂𝓪 𝓰𝓪𝓷𝓰!! 𝓘'𝓶 𝔂𝓸𝓾𝓻 𝓵𝓸𝓬𝓪𝓵 𝓲𝓭𝓲𝓸𝓽 𝓜𝓸𝓸𝓷!!
 for more info abt me check here!! https://givetomurasomechapstickz.blogspot.com/2025/10/About%20Me.html
 ## Here's a mini bio tho for convenience
 DNC / INSPO ON PONY TOWN ❌❌❌
