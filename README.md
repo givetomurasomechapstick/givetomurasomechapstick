@@ -1,4 +1,11 @@
-## Hi there 👋
+## Hiya gang!! I'm your local idiot Moon!!
+for more info abt me check here!! https://givetomurasomechapstickz.blogspot.com/2025/10/About%20Me.html
+## Here's a mini bio tho for convenience
+DNC / INSPO ON PONY TOWN ❌❌❌
+
+FANDOMS: MHA, CRK, SONIC, ROTTMNT, NARUTO, PROUD FAMILY, TEEN TITANS
+
+KINS: RISE DONNIE, SILVER THE HEDGEHOG, DABI, TAMAKI, BLACK SAPPHIRE COOKIE
 
 <!--
 **givetomurasomechapstick/givetomurasomechapstick** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
