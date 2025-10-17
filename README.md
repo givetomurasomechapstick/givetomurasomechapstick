@@ -1,4 +1,4 @@
-## 𝓗𝓐𝓘𝓗𝓐𝓘𝓗𝓐𝓘𝓘 𝓘𝓜 𝓜𝓞𝓞𝓝!! 𝓝𝓘𝓒𝓔 𝓣𝓞 𝓜𝓔𝓔𝓣 𝓨𝓐!!
+## ℍ𝔸𝕀ℍ𝔸𝕀ℍ𝔸𝕀𝕀𝕀𝕀 𝕀𝕄 𝕄𝕆𝕆ℕ!! ℕ𝕀ℂ𝔼 𝕋𝕆 𝕄𝔼𝔼𝕋 𝕐𝔸!!
 please go here for my bio :: https://givetomurasomechapstickz.blogspot.com/2025/10/About%20Me.html
 ## IF YOU'RE FROM PONY TOWN
 DNC / INSPO ON ANY OF MY CHARACTERS WITHOUT PERMISSION ❌❌❌
