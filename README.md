@@ -1,7 +1,7 @@
 ## ℍ𝔸𝕀ℍ𝔸𝕀ℍ𝔸𝕀𝕀𝕀𝕀 𝕀𝕄 𝕄𝕆𝕆ℕ!! ℕ𝕀ℂ𝔼 𝕋𝕆 𝕄𝔼𝔼𝕋 𝕐𝔸!!
 please go here for my bio :: https://givetomurasomechapstickz.blogspot.com/2025/10/About%20Me.html
-## IF YOU'RE FROM PONY TOWN
-DNC / INSPO ON ANY OF MY CHARACTERS WITHOUT PERMISSION ❌❌❌
+## 𝕀𝔽 𝕐𝕆𝕌'ℝ𝔼 𝔽ℝ𝕆𝕄 ℙ𝕆ℕ𝕐 𝕋𝕆𝕎ℕ
+PLS DNC / INSPO ON ANY OF MY CHARACTERS WITHOUT PERMISSION ❌❌❌
 
 <p>&nbsp;</p><div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgdOrZgXrQM_CrUETk4IMstN0QQlOhfV5-ruzm3wvgkTOCu8py7_nUqTB122Nm3GsixEgI6rdoiLmKNXkgger0962kBdPYxbv1Rhh7bfIWtaoz937XyHVKn950PY2zEZXePy___NULHp7sA1Ku4ZV7Vmmrd5U0lNeH7G-_9LreFBB46W3HVd5Hxvju2_04/s455/1000000030.gif" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="256" data-original-width="455" height="180" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgdOrZgXrQM_CrUETk4IMstN0QQlOhfV5-ruzm3wvgkTOCu8py7_nUqTB122Nm3GsixEgI6rdoiLmKNXkgger0962kBdPYxbv1Rhh7bfIWtaoz937XyHVKn950PY2zEZXePy___NULHp7sA1Ku4ZV7Vmmrd5U0lNeH7G-_9LreFBB46W3HVd5Hxvju2_04/s320/1000000030.gif" width="320" /></a></div><br />
 
