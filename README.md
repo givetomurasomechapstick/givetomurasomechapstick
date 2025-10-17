@@ -1,5 +1,8 @@
 ## ℍ𝔸𝕀ℍ𝔸𝕀ℍ𝔸𝕀𝕀𝕀𝕀 𝕀𝕄 𝕄𝕆𝕆ℕ!! ℕ𝕀ℂ𝔼 𝕋𝕆 𝕄𝔼𝔼𝕋 𝕐𝔸!!
 please go here for my bio :: https://givetomurasomechapstickz.blogspot.com/2025/10/About%20Me.html
+
+<div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg0ecbuK229Egayb1islZMuGlcp8CLzzg7nBg6MjbVLSvy2C6sQI_dL5YAZf2yM2BkUy5p-M6eOFSIOXowLqZa-0U0pSpmxnCGYFXvCdSMt_AMLl3Yh6H2GlozYoEbkod7dUCFDBOip4pn1boCeu4IHX8oKzv4pNlF4Znkrj-vJt9JrrBSlVuQMDlaPXuU/s498/1000000042.gif" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="280" data-original-width="498" height="180" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg0ecbuK229Egayb1islZMuGlcp8CLzzg7nBg6MjbVLSvy2C6sQI_dL5YAZf2yM2BkUy5p-M6eOFSIOXowLqZa-0U0pSpmxnCGYFXvCdSMt_AMLl3Yh6H2GlozYoEbkod7dUCFDBOip4pn1boCeu4IHX8oKzv4pNlF4Znkrj-vJt9JrrBSlVuQMDlaPXuU/s320/1000000042.gif" width="320" /></a></div><br /><p><br /></p><br />
+
 ## 𝕀𝔽 𝕐𝕆𝕌'ℝ𝔼 𝔽ℝ𝕆𝕄 ℙ𝕆ℕ𝕐 𝕋𝕆𝕎ℕ
 PLS DNC / INSPO ON ANY OF MY CHARACTERS WITHOUT STRICTLY MY PERMISSION ❌❌❌
 
