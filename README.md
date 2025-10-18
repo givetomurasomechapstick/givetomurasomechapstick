@@ -34,7 +34,7 @@ PLS DNC / INSPO ON ANY OF MY CHARACTERS WITHOUT STRICTLY MY PERMISSION ❌❌❌
 
 ## 𝕋ℍ𝔸ℕ𝕂 𝕐𝕆𝕌 𝕊𝕆 𝕄𝕌ℂℍ 𝔽𝕆ℝ ℝ𝔼𝔸𝔻𝕀ℕ𝔾!!
 
-btw I'm ShinyMoonBraixen or ShinyMB basically everywhere else but Discord and Twitter/X, you can look me up or go to the link at the top for my other socials!!
+btw I'm ShinyMoonBraixen or ShinyMB basically everywhere else but Discord, TikTok, and Twitter/X, you can look me up or go to the link at the top for my other socials!!
 
 <div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgXN5wdCndKPsONsnh2CiB5L6jrXCIp9APsdw8fxSyBk3DP0V8wHlHG3fHDmRxiFo6uv_e69otIn87AR18NZ3WS-BZU3OipHp07LAEY_KQDbK2c9EWxZrKQkJJ_P6Dpw6t1eE1BhBSd5rFDazjOV-sOFF1N0Fqbin741g-VvPsF43Ht7cLgdKVZ8R6dc9U/s50/1000000044.gif" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="281" data-original-width="500" height="180" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgXN5wdCndKPsONsnh2CiB5L6jrXCIp9APsdw8fxSyBk3DP0V8wHlHG3fHDmRxiFo6uv_e69otIn87AR18NZ3WS-BZU3OipHp07LAEY_KQDbK2c9EWxZrKQkJJ_P6Dpw6t1eE1BhBSd5rFDazjOV-sOFF1N0Fqbin741g-VvPsF43Ht7cLgdKVZ8R6dc9U/s320/1000000044.gif" width="320" /></a></div><br /><div class="separator" style="clear: both; text-align: center;"><br /></div><br /><div class="separator" style="clear: both; text-align: center;"><br /></div><p><br /></p><br />
 
