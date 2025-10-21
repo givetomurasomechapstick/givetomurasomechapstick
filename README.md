@@ -13,3 +13,6 @@
 <div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-BpKg81azfpukHV7uvPcR2JmjPZp0koMq3NslHrFmmkxulwHYceQw0Qgi-ZNtZ6eGRglvL4BHDDUJHQeonlGblc93QD0YQCHt1YGDoCI46nXD1cy8RFPPztCKMYwgBqZZsjREJecDp2PlxXV4UqvXkGzxvhUQfgdXiT0Yw01YcudTwwBz_2rkUNhfym0/s498/1000000055.gif" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="280" data-original-width="498" height="360" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-BpKg81azfpukHV7uvPcR2JmjPZp0koMq3NslHrFmmkxulwHYceQw0Qgi-ZNtZ6eGRglvL4BHDDUJHQeonlGblc93QD0YQCHt1YGDoCI46nXD1cy8RFPPztCKMYwgBqZZsjREJecDp2PlxXV4UqvXkGzxvhUQfgdXiT0Yw01YcudTwwBz_2rkUNhfym0/w640-h360/1000000055.gif" width="640" /></a></div><br /><div class="separator" style="clear: both; text-align: center;"><br /></div><br />
 
 °❀⋆.ೃ࿔*:･ 𝐨𝐤𝐢 𝐟𝐚𝐫𝐞𝐰𝐞𝐥𝐥𝐬!! °❀⋆.ೃ࿔*:･
+
+      shinymoonbraixen
+𝐞𝐯𝐞𝐫𝐲𝐰𝐡𝐞𝐫𝐞 𝐞𝐥𝐬𝐞
