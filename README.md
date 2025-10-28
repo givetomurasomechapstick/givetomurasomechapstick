@@ -28,6 +28,26 @@ FAVORITE COLOR - PURPLE , SPECIFICALLY INDIGO OR LAVENDER
 
 MAY HAVE ADHD
 
+𝐅𝐀𝐍𝐃𝐎𝐌𝐒 //
+
+MHA (MY HERO ACADEMIA)
+
+CRK (COOKIE RUN KINGDOM) !!!
+
+ROTTMNT (RISE OF THE TEENAGE MUTANT NINJA TURTLES) (TMNT IN GENERAL)
+
+SXF (SPY X FAMILY)
+
+SONIC THE HEDGEHOG
+
+NARUTO
+
+PROUD FAMILY
+
+POKEMON
+
+TEEN TITANS
+
 ## INT WARNINGS ETC. !! //
 
 PRONOUNS //
@@ -35,5 +55,17 @@ PRONOUNS //
 SHE ° HER PREFERRED, IDM THEY ° THEM THO
 
 NO HE ° HIM , IT ° ITS , OR ANY OTHERS !!
+
+I prefer to be referred to as a girl 
+
+BASIC //
+
+PLEASE DNI IF 18+ UNLESS CLOSE FRIEND!!
+
+I am shy, and my interaction / social levels change randomly ok?
+
+I prefer not to be copied , impersonated , or inspo taken
+
+## FRIENDS 🌙
 
 this thingy right here is a wip btw
