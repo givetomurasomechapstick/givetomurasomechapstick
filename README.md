@@ -2,4 +2,4 @@
 
 me and shebi fr
 
-⬅ BTW GO READ THE MEGAN DOC !!!! ⚠️⚠️⚠️
+⬅ BTW GO READ THE MEGAN DOC BY @LXCKYSTXRS !!!! ⚠️⚠️⚠️
