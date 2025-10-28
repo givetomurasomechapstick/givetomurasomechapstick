@@ -68,4 +68,32 @@ I prefer not to be copied , impersonated , or inspo taken
 
 ## FRIENDS 🌙
 
-this thingy right here is a wip btw
+𝐒𝐡𝐞𝐛𝐢 / 𝐒𝐢𝐥𝐥𝐲 𝐕𝐚𝐧𝐢𝐥𝐥𝐲
+
+@bunnythecupcake
+
+@The-Dragon-Sheep
+
+𝐓𝐡𝐨𝐧𝐞 / 𝐁𝐥𝐚𝐝𝐞
+
+𝐂𝐫𝐲𝐩𝐭𝐢𝐜 / 𝐉𝐞𝐬𝐭𝐞𝐫
+
+𝐁𝐢𝐭𝐬𝐲
+
+@strawberrykatsuu / 𝐄𝐥𝐥𝐢
+
+@ccstinks22x
+
+@darlingkekei
+
+@lxckystxrs / 𝐀𝐤𝐢𝐭𝐨
+
+@iidaten
+
+@kennethwhen
+
+@M1xysan
+
+𝐓𝐰𝐢𝐠
+
++ 𝐦𝐨𝐫𝐞 • 𝐜𝐡𝐞𝐜𝐤 𝐭𝐡𝐞𝐦 𝐨𝐮𝐭 𝐩𝐫𝐞𝐭𝐭𝐲 𝐩𝐥𝐞𝐚𝐬𝐞!
