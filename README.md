@@ -1,7 +1,7 @@
-<div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjhawLA9y2P2dokNDpJcmuSh4cnimrDy4oa0ba2c2NNwSoirjNJ5wbIBy-5yCPOzQTlT2apyPO0R5nQnZjjrMx6o8XiawNWiZ5LfWc7xAao5earTfJqr39EenokUE1vkMDskIGtWKUnuKBV4Df4P2nQjwcX-i6yEocP46TsCFVUgeGhZnvAh8CiJzISbgo/s736/1000000083.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="558" data-original-width="736" height="243" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjhawLA9y2P2dokNDpJcmuSh4cnimrDy4oa0ba2c2NNwSoirjNJ5wbIBy-5yCPOzQTlT2apyPO0R5nQnZjjrMx6o8XiawNWiZ5LfWc7xAao5earTfJqr39EenokUE1vkMDskIGtWKUnuKBV4Df4P2nQjwcX-i6yEocP46TsCFVUgeGhZnvAh8CiJzISbgo/s320/1000000083.jpg" width="320" /></a></div><br />
+⬅ 𝔹𝕋𝕎 𝔾𝕆 ℝ𝔼𝔸𝔻 𝕋ℍ𝔼 𝕄*𝔾𝔸ℕ 𝔻𝕆ℂ 𝔹𝕐 @lxckystxrs !!!! ⚠️⚠️⚠️
 
-me and shebi fr
+<div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVYx3kkMZmjYdkAshIsUBfRtkeySc0e6mGIyOQEvMKzKZlYeOOG6sdJ-q-ThoRDKDwBWflmIt0za107Pdc68a8f-7YNndJ5Eqt9x4MnrMaIreUI85n4C3hIH2FPkBtBaqKrxtIf_M5ne6bUE0tCJATHJZkQtn2gOxkFzSwNOw3DhQFRo159yxcsf-A38w/s1920/1000000097.gif" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="375" data-original-width="1920" height="330" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVYx3kkMZmjYdkAshIsUBfRtkeySc0e6mGIyOQEvMKzKZlYeOOG6sdJ-q-ThoRDKDwBWflmIt0za107Pdc68a8f-7YNndJ5Eqt9x4MnrMaIreUI85n4C3hIH2FPkBtBaqKrxtIf_M5ne6bUE0tCJATHJZkQtn2gOxkFzSwNOw3DhQFRo159yxcsf-A38w/w1677-h330/1000000097.gif" width="1677" /></a></div><br /><div class="separator" style="clear: both; text-align: center;"><br /></div><br /><div class="separator" style="clear: both; text-align: center;"><br /></div><br />
 
-⬅ BTW GO READ THE MEGAN DOC BY @lxckystxrs !!!! ⚠️⚠️⚠️
+## 𝗛𝗔𝗜𝗛𝗔𝗜 𝗜𝗠 𝗠𝗢𝗢𝗡!!
 
 this thingy right here is a wip btw
