@@ -3,3 +3,5 @@
 me and shebi fr
 
 ⬅ BTW GO READ THE MEGAN DOC BY @lxckystxrs !!!! ⚠️⚠️⚠️
+
+this thingy right here is a wip btw
