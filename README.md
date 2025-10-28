@@ -4,6 +4,8 @@
 
 ## 𝐇𝐀𝐈𝐀𝐈𝐇𝐀𝐈𝐈𝐈𝐈 𝐈𝐌 𝐌𝐎𝐎𝐍
 
+<div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnw9ZYkz8WFajEaDdKb9LeMB7-g3IEmY353oI8JCDYUX3GQnoJrBAsoZaH5DVPCQavvS1GkdrCJsGaTvTI6euEZeIpW75Td_W6oly-0SucZPVxLELB5wmf-ZxQxFl4feH91nWHAFpI6OTn7i_jH-_ZOJk9DFZaHyXRN5BOP7jJObtTP-yx8DDEssRjuSk/s1920/1000000100.gif" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="595" data-original-width="1920" height="334" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnw9ZYkz8WFajEaDdKb9LeMB7-g3IEmY353oI8JCDYUX3GQnoJrBAsoZaH5DVPCQavvS1GkdrCJsGaTvTI6euEZeIpW75Td_W6oly-0SucZPVxLELB5wmf-ZxQxFl4feH91nWHAFpI6OTn7i_jH-_ZOJk9DFZaHyXRN5BOP7jJObtTP-yx8DDEssRjuSk/w1080-h334/1000000100.gif" width="1080" /></a></div><br />
+
 ## BASIC //
 
 GENDER - FEMALE
@@ -48,6 +50,10 @@ POKEMON
 
 TEEN TITANS
 
+HXH (HUNTER X HUNTER) ?
+
+<div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnw9ZYkz8WFajEaDdKb9LeMB7-g3IEmY353oI8JCDYUX3GQnoJrBAsoZaH5DVPCQavvS1GkdrCJsGaTvTI6euEZeIpW75Td_W6oly-0SucZPVxLELB5wmf-ZxQxFl4feH91nWHAFpI6OTn7i_jH-_ZOJk9DFZaHyXRN5BOP7jJObtTP-yx8DDEssRjuSk/s1920/1000000100.gif" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="595" data-original-width="1920" height="334" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnw9ZYkz8WFajEaDdKb9LeMB7-g3IEmY353oI8JCDYUX3GQnoJrBAsoZaH5DVPCQavvS1GkdrCJsGaTvTI6euEZeIpW75Td_W6oly-0SucZPVxLELB5wmf-ZxQxFl4feH91nWHAFpI6OTn7i_jH-_ZOJk9DFZaHyXRN5BOP7jJObtTP-yx8DDEssRjuSk/w1080-h334/1000000100.gif" width="1080" /></a></div><br />
+
 ## INT WARNINGS ETC. !! //
 
 PRONOUNS //
@@ -65,6 +71,12 @@ PLEASE DNI IF 18+ UNLESS CLOSE FRIEND!!
 I am shy, and my interaction / social levels change randomly ok?
 
 I prefer not to be copied , impersonated , or inspo taken
+
+I might vent w/out trigger warnings so pls ask for them before I say I wanna vent or smth, I wanna make sure I don't bother anyone!!
+
+I have somewhat bad memory
+
+<div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnw9ZYkz8WFajEaDdKb9LeMB7-g3IEmY353oI8JCDYUX3GQnoJrBAsoZaH5DVPCQavvS1GkdrCJsGaTvTI6euEZeIpW75Td_W6oly-0SucZPVxLELB5wmf-ZxQxFl4feH91nWHAFpI6OTn7i_jH-_ZOJk9DFZaHyXRN5BOP7jJObtTP-yx8DDEssRjuSk/s1920/1000000100.gif" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="595" data-original-width="1920" height="334" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnw9ZYkz8WFajEaDdKb9LeMB7-g3IEmY353oI8JCDYUX3GQnoJrBAsoZaH5DVPCQavvS1GkdrCJsGaTvTI6euEZeIpW75Td_W6oly-0SucZPVxLELB5wmf-ZxQxFl4feH91nWHAFpI6OTn7i_jH-_ZOJk9DFZaHyXRN5BOP7jJObtTP-yx8DDEssRjuSk/w1080-h334/1000000100.gif" width="1080" /></a></div><br />
 
 ## FRIENDS 🌙
 
@@ -97,3 +109,15 @@ I prefer not to be copied , impersonated , or inspo taken
 𝐓𝐰𝐢𝐠
 
 + 𝐦𝐨𝐫𝐞 • 𝐜𝐡𝐞𝐜𝐤 𝐭𝐡𝐞𝐦 𝐨𝐮𝐭 𝐩𝐫𝐞𝐭𝐭𝐲 𝐩𝐥𝐞𝐚𝐬𝐞!
+
+<div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnw9ZYkz8WFajEaDdKb9LeMB7-g3IEmY353oI8JCDYUX3GQnoJrBAsoZaH5DVPCQavvS1GkdrCJsGaTvTI6euEZeIpW75Td_W6oly-0SucZPVxLELB5wmf-ZxQxFl4feH91nWHAFpI6OTn7i_jH-_ZOJk9DFZaHyXRN5BOP7jJObtTP-yx8DDEssRjuSk/s1920/1000000100.gif" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="595" data-original-width="1920" height="334" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnw9ZYkz8WFajEaDdKb9LeMB7-g3IEmY353oI8JCDYUX3GQnoJrBAsoZaH5DVPCQavvS1GkdrCJsGaTvTI6euEZeIpW75Td_W6oly-0SucZPVxLELB5wmf-ZxQxFl4feH91nWHAFpI6OTn7i_jH-_ZOJk9DFZaHyXRN5BOP7jJObtTP-yx8DDEssRjuSk/w1080-h334/1000000100.gif" width="1080" /></a></div><br />
+
+## KINS
+
+ROTTMNT Donnie / HEAVYKIN!!
+
+Eternal Sugar Cookie / HEAVYKIN!!
+
+Dabi
+
+Ochako Uraraka
