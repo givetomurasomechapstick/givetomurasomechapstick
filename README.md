@@ -1,3 +1,5 @@
+𝗗𝗢 𝗡𝗢𝗧 𝗨𝗦𝗘 𝘼𝙉𝙔 𝗢𝗙 𝗠𝗬 𝗦𝗢𝗖𝗜𝗔𝗟𝗦 𝗧𝗢 𝗖𝗢𝗡𝗧𝗔𝗖𝗧 𝗠𝗘 𝗢𝗡, 𝗣𝗟𝗘𝗔𝗦𝗘 𝗔𝗡𝗗 𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨 !! ⚠️
+
 ⬅ 𝔹𝕋𝕎 𝔾𝕆 ℝ𝔼𝔸𝔻 𝕋ℍ𝔼 𝕄*𝔾𝔸ℕ 𝔻𝕆ℂ 𝔹𝕐 <a href="https://github.com/lxckystxrs" target="_blank">@lxckystxrs</a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><br />
 
 PFP NOT BY ME!! I GOT IT OFF THE INTERNET 
