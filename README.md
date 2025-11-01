@@ -1,7 +1,5 @@
 𝗗𝗢 𝗡𝗢𝗧 𝗨𝗦𝗘 𝘼𝙉𝙔 𝗢𝗙 𝗠𝗬 𝗦𝗢𝗖𝗜𝗔𝗟𝗦 𝗧𝗢 𝗖𝗢𝗡𝗧𝗔𝗖𝗧 𝗠𝗘 𝗢𝗡, 𝗣𝗟𝗘𝗔𝗦𝗘 𝗔𝗡𝗗 𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨 !! ⚠️ [im ight w scratch tho if youre a friend]
 
-⬅ 𝔹𝕋𝕎 𝔾𝕆 ℝ𝔼𝔸𝔻 𝕋ℍ𝔼 𝕄*𝔾𝔸ℕ 𝔻𝕆ℂ 𝔹𝕐 <a href="https://github.com/lxckystxrs" target="_blank">@lxckystxrs</a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><br />
-
 PFP NOT BY ME!! I GOT IT OFF THE INTERNET 
 
 <div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVYx3kkMZmjYdkAshIsUBfRtkeySc0e6mGIyOQEvMKzKZlYeOOG6sdJ-q-ThoRDKDwBWflmIt0za107Pdc68a8f-7YNndJ5Eqt9x4MnrMaIreUI85n4C3hIH2FPkBtBaqKrxtIf_M5ne6bUE0tCJATHJZkQtn2gOxkFzSwNOw3DhQFRo159yxcsf-A38w/s1920/1000000097.gif" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="375" data-original-width="1920" height="330" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgVYx3kkMZmjYdkAshIsUBfRtkeySc0e6mGIyOQEvMKzKZlYeOOG6sdJ-q-ThoRDKDwBWflmIt0za107Pdc68a8f-7YNndJ5Eqt9x4MnrMaIreUI85n4C3hIH2FPkBtBaqKrxtIf_M5ne6bUE0tCJATHJZkQtn2gOxkFzSwNOw3DhQFRo159yxcsf-A38w/w1677-h330/1000000097.gif" width="1677" /></a></div><br /><div class="separator" style="clear: both; text-align: center;"><br /></div><br /><div class="separator" style="clear: both; text-align: center;"><br /></div><br />
@@ -141,5 +139,11 @@ Ochako Uraraka
 <div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgZVKqQssXzks3hAQzh5nq4mRFoUsjnqenOhOM1PqXX3KzrvVDuE5rOz09tTCzezN0uvRJJbS1lmodFX3OEuuw_VfOyJavYOKQqtG_itPFuOZQT9fQWuJ3C-UrG1doYWQ1-rZU0dFUwsimBs_-0ULjGjg58ylbNDizUmeMr8oCgessc9jUdpfudv2tGhPc/s736/1000000083.jpg" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="558" data-original-width="736" height="243" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgZVKqQssXzks3hAQzh5nq4mRFoUsjnqenOhOM1PqXX3KzrvVDuE5rOz09tTCzezN0uvRJJbS1lmodFX3OEuuw_VfOyJavYOKQqtG_itPFuOZQT9fQWuJ3C-UrG1doYWQ1-rZU0dFUwsimBs_-0ULjGjg58ylbNDizUmeMr8oCgessc9jUdpfudv2tGhPc/s320/1000000083.jpg" width="320" /></a></div><br />
 
 me and Shebi fr
+
+<div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnw9ZYkz8WFajEaDdKb9LeMB7-g3IEmY353oI8JCDYUX3GQnoJrBAsoZaH5DVPCQavvS1GkdrCJsGaTvTI6euEZeIpW75Td_W6oly-0SucZPVxLELB5wmf-ZxQxFl4feH91nWHAFpI6OTn7i_jH-_ZOJk9DFZaHyXRN5BOP7jJObtTP-yx8DDEssRjuSk/s1920/1000000100.gif" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="595" data-original-width="1920" height="334" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnw9ZYkz8WFajEaDdKb9LeMB7-g3IEmY353oI8JCDYUX3GQnoJrBAsoZaH5DVPCQavvS1GkdrCJsGaTvTI6euEZeIpW75Td_W6oly-0SucZPVxLELB5wmf-ZxQxFl4feH91nWHAFpI6OTn7i_jH-_ZOJk9DFZaHyXRN5BOP7jJObtTP-yx8DDEssRjuSk/w1080-h334/1000000100.gif" width="1080" /></a></div><br />
+
+##
+
+𝔹𝕋𝕎 𝔾𝕆 ℝ𝔼𝔸𝔻 𝕋ℍ𝔼 𝕄*𝔾𝔸ℕ 𝔻𝕆ℂ 𝔹𝕐 <a href="https://github.com/lxckystxrs" target="_blank">@lxckystxrs</a></div><div class="separator" style="clear: both; text-align: center;"><br /></div><br />
 
 <div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnw9ZYkz8WFajEaDdKb9LeMB7-g3IEmY353oI8JCDYUX3GQnoJrBAsoZaH5DVPCQavvS1GkdrCJsGaTvTI6euEZeIpW75Td_W6oly-0SucZPVxLELB5wmf-ZxQxFl4feH91nWHAFpI6OTn7i_jH-_ZOJk9DFZaHyXRN5BOP7jJObtTP-yx8DDEssRjuSk/s1920/1000000100.gif" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="595" data-original-width="1920" height="334" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnw9ZYkz8WFajEaDdKb9LeMB7-g3IEmY353oI8JCDYUX3GQnoJrBAsoZaH5DVPCQavvS1GkdrCJsGaTvTI6euEZeIpW75Td_W6oly-0SucZPVxLELB5wmf-ZxQxFl4feH91nWHAFpI6OTn7i_jH-_ZOJk9DFZaHyXRN5BOP7jJObtTP-yx8DDEssRjuSk/w1080-h334/1000000100.gif" width="1080" /></a></div><br />
