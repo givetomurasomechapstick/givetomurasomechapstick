@@ -158,6 +158,12 @@ Dabi
 
 Ochako Uraraka
 
+Penny Proud
+
+Silver the Hedgehog 
+
+Infinite the Jackal 
+
 <div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnw9ZYkz8WFajEaDdKb9LeMB7-g3IEmY353oI8JCDYUX3GQnoJrBAsoZaH5DVPCQavvS1GkdrCJsGaTvTI6euEZeIpW75Td_W6oly-0SucZPVxLELB5wmf-ZxQxFl4feH91nWHAFpI6OTn7i_jH-_ZOJk9DFZaHyXRN5BOP7jJObtTP-yx8DDEssRjuSk/s1920/1000000100.gif" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="595" data-original-width="1920" height="334" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnw9ZYkz8WFajEaDdKb9LeMB7-g3IEmY353oI8JCDYUX3GQnoJrBAsoZaH5DVPCQavvS1GkdrCJsGaTvTI6euEZeIpW75Td_W6oly-0SucZPVxLELB5wmf-ZxQxFl4feH91nWHAFpI6OTn7i_jH-_ZOJk9DFZaHyXRN5BOP7jJObtTP-yx8DDEssRjuSk/w1080-h334/1000000100.gif" width="1080" /></a></div><br />
 
 ## 
