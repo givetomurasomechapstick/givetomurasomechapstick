@@ -134,6 +134,14 @@ I take things literal often so be aware of that when joking w me ^^
 
 @m1e1l1o1d1y
 
+@PastryWest
+
+@ChaoticHypnotic
+
+@sombraoverwatch
+
+@lili-chouchou
+
 /+ 𝐦𝐨𝐫𝐞 • 𝐜𝐡𝐞𝐜𝐤 𝐭𝐡𝐞𝐦 𝐨𝐮𝐭 𝐩𝐫𝐞𝐭𝐭𝐲 𝐩𝐥𝐞𝐚𝐬𝐞!
 
 ‿̩͙⊱༒︎༻☾༺༒︎⊰‿̩͙
