@@ -2,8 +2,6 @@ i got permanently suspended from pony town btw grrr pls contact me on scratch.mi
 
 𝗗𝗢 𝗡𝗢𝗧 𝗨𝗦𝗘 𝘼𝙉𝙔 𝗢𝗙 𝗠𝗬 𝗦𝗢𝗖𝗜𝗔𝗟𝗦 𝗧𝗢 𝗖𝗢𝗡𝗧𝗔𝗖𝗧 𝗠𝗘 𝗢𝗡, 𝗣𝗟𝗘𝗔𝗦𝗘 𝗔𝗡𝗗 𝗧𝗛𝗔𝗡𝗞 𝗬𝗢𝗨 !! ⚠️ [im ight w scratch tho if youre a friend]
 
-I drew my pfp btw :D
-
 ##
 
 ⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
