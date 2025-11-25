@@ -114,7 +114,7 @@ I take things literal often so be aware of that when joking w me ^^
 
 𝐁𝐢𝐭𝐬𝐲
 
-@strawberrykatsuu / 𝐄𝐥𝐥𝐢
+@strawberrykatsuu / 𝐄𝐥𝐥𝐢𝐨𝐭
 
 @ccstinks22x
 
