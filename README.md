@@ -42,6 +42,8 @@ FAVORITE COLOR - PURPLE , SPECIFICALLY INDIGO OR LAVENDER
 
 MAY HAVE ADHD
 
+No I do not like tcoaal, or anything in it. The game makes me actually wanna throw up fr.... Andrew x Juliais peak tho..
+ 
 𝐅𝐀𝐍𝐃𝐎𝐌𝐒 //
 
 MHA (MY HERO ACADEMIA)
