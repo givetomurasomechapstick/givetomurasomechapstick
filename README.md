@@ -1,3 +1,1 @@
-<p></p><div class="separator" style="clear: both; text-align: center;"><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJpmYz4914YNNuCKeS086UYhhHAjpLHSBQfsbrKVSVpxJYMpTr7HkknKeD_USKMbQVAW172j_jhvxLZb-0O0DkCVpWoHLFjosGJyONWr7BVtMqkJW5j6szTYJQ2W_ICsarLm8iT8Mwao8TBw03f3ERyav8VC-s8Q5P_JqOCAcd5XZmWHUmcW-Y6SRhrUzY/s736/1000000393.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="245" data-original-width="736" height="218" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJpmYz4914YNNuCKeS086UYhhHAjpLHSBQfsbrKVSVpxJYMpTr7HkknKeD_USKMbQVAW172j_jhvxLZb-0O0DkCVpWoHLFjosGJyONWr7BVtMqkJW5j6szTYJQ2W_ICsarLm8iT8Mwao8TBw03f3ERyav8VC-s8Q5P_JqOCAcd5XZmWHUmcW-Y6SRhrUzY/w651-h218/1000000393.jpg" width="651" /></a></div><br />&nbsp;<p></p>
-
-i love and miss all my friens so dearly
+happy holidays 
