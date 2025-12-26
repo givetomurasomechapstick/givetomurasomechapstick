@@ -3,3 +3,5 @@ happy holidays.
 [ hi btw if you was wonderin yes im ok im alive im breathing im thriving and my life has been doing pretty good. gettin more successful w/ my career and art by the day.. im sorry i kind of abandoned you guys,, i got banned and theres currently nothing i can do abt it. if you wanna talk or need to vent pls reach out. check the strawpage link for how to chat w/ me. i hope all of my friens are ok and happy ^_^ ive been kinda getting outta my mha and crk faze after my fav chars died and all lmao-- im thinking abt getting into the apothecary diaries and tokyo revengers heh. i love you all so dearly, thank you for being there for me and being such great friends. cya. also im now brainrotted SIX SEVE ]
 
 [ also PLEASE dw bout me, my depression has been getting better recently so hopefully that was just a faze of mines. check "og" repository for more info abt me, and look up ShinyMoonBraixen or Shiny Moon Braixen for my art. ]
+
+also nejire is my wife try and steal her and d!e :3
